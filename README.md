@@ -14,4 +14,4 @@ I am interested in learning new ideas and playing __pc games__. I like to watch 
 
   **Hobbies:**  
 * PC games  
- * MMORPGs
+  * MMORPGs
