@@ -11,6 +11,7 @@ I am interested in learning new ideas and playing __pc games__. I like to watch 
 6. Lunch  
 7. SEP11  
 8. Gym  
-**Hobbies:**  
-*PC games  
- *MMORPG
+
+  **Hobbies:**  
+* PC games  
+ * MMORPGs
