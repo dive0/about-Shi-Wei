@@ -1,6 +1,7 @@
 # Shi Wei Zheng  
 ### High School of Telecommunication Arts and Technology  
-[Email](shiz3150@hstat.org)  
+shiz3150@hstat.org  
+[My portfolio](https://sites.google.com/a/hstat.org/shiz3150sep11/)  
 I am interested in learning new ideas and playing _pc games_. I like to watch movies.  
 **Schedule:**  
 1. Spanish  
